@@ -6,4 +6,4 @@
 - 🤔 I’m looking for help with breaking down concepts of data analysis and visualisation
 - 💬 Ask me about my learning journey
 - 📫 How to reach me https://twitter.com/zaynabkareem2
-- 😄 Pronouns: She/her
+- 😄 Pronouns: (She/her)
